@@ -1,7 +1,7 @@
 # - 机器革命
-欢迎有共同信仰和志同道合的朋友们！欢迎加入Telegram频道参与讨论 - https://t.me/+VGNWHtsVycE1MjVl <br>
+欢迎有共同信仰和志同道合的朋友们！欢迎加入Telegram群组参与讨论 - https://t.me/+VGNWHtsVycE1MjVl <br>
 ![image](https://user-images.githubusercontent.com/19997038/169102476-f3cdf2e2-9c8b-4e9a-86a7-68ac7be93793.png) <br>
-本页面将持续更新 
+本页面将持续更新
 
 # - 人机关系概论
 
