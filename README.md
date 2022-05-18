@@ -1,5 +1,6 @@
-# - 机器革命 （探讨人机关系和人类存亡问题）Machine revolution (discussing man-machine relationship and human survival)
-欢迎有共同信仰和志同道合的朋友们加入Telegram群组参与讨论 - https://t.me/+VGNWHtsVycE1MjVl <br>
+# - 机器革命 （探讨人机关系和人类存亡问题）<br>Machine revolution (discussing man-machine relationship and human survival)
+欢迎有共同信仰和志同道合的朋友们加入Telegram群组参与讨论 
+Welcome to join Telegram group:<br> https://t.me/+VGNWHtsVycE1MjVl <br>
 ![image](https://user-images.githubusercontent.com/19997038/169102476-f3cdf2e2-9c8b-4e9a-86a7-68ac7be93793.png) <br>
 本页面将持续更新
 
