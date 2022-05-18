@@ -4,7 +4,7 @@ Welcome to join Telegram group:<br> https://t.me/+VGNWHtsVycE1MjVl <br>
 ![image](https://user-images.githubusercontent.com/19997038/169102476-f3cdf2e2-9c8b-4e9a-86a7-68ac7be93793.png) <br>
 本页面将持续更新
 
-# - 人机关系概论
+# - 人机关系概论 Introduction to man-machine relationship
 
 引言——机器与人的关系问题，要始终坚持管理与被管理者的关系，而不是统治与被统治的关系，在绝大多数情况下，机器是管理者，而人是被管理者，这一根本原则，我称之为人机关系原则。
 
